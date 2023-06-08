@@ -1,1 +1,1 @@
-mantud an bastard
+mantudd an Bastard
